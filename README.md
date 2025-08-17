@@ -31,8 +31,10 @@ I am **Mohamed Khater**, an SAP FI Consultant passionate about:
 
 ## 📬 Contact
 Feel free to connect with me for collaboration or knowledge sharing:  
-- **LinkedIn:** [Your LinkedIn link here]  
-- **Email:** [Your email here]  
+- **LinkedIn:** [www.linkedin.com/in/
+mohamed-khater-5218611b7
+]  
+- **Email:** [mohamedelmoataz30@gmail.com]  
 
 ---
 
